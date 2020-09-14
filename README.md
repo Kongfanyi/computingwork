@@ -1,9 +1,9 @@
 # computingwork
 
-Ideas for Teachers Day Celebration
+### Ideas for Teachers' Day Celebration:
 
-Write Notes/Card
-
-Buy Presents
-
-Google Meet
+- Write notes/card
+- Buy gifts to show our appreciation for them
+- Host a Google Meet
+- Create a compilation of notes and put them onto a board for each teacher
+- Videos to show appreciation for each teacher
